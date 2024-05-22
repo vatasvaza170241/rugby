@@ -1,1 +1,1 @@
-Hockey sticks are typically made of wood, fiberglass, or carbon fiber composite materials, with varying degrees of flexibility and durability.
+Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
