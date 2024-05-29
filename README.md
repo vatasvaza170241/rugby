@@ -1,1 +1,1 @@
-Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
+The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
