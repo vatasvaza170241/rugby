@@ -1,1 +1,1 @@
-The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
+Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
