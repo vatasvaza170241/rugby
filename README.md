@@ -1,1 +1,1 @@
-Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
+The origins of hockey can be traced back to ancient civilizations, with games resembling modern hockey played on ice and fields as early as 4,000 years ago.
