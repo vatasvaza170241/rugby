@@ -1,1 +1,1 @@
-Mike Tyson, known as "Iron Mike," became the youngest heavyweight champion in history at the age of 20 and was known for his ferocious punching power and aggressive fighting style.
+Rugby union is the most widely played and recognized form of rugby, with the Rugby World Cup being the premier international tournament for the sport, held every four years since 1987.
