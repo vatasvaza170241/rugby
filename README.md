@@ -1,1 +1,1 @@
-Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
+Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
