@@ -1,1 +1,1 @@
-Modern boxing gloves are padded with foam or horsehair and come in various weights and styles, with heavier gloves providing more protection but also reducing hand speed.
+Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
