@@ -1,1 +1,1 @@
-Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
+A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
