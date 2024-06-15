@@ -1,1 +1,1 @@
-A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
