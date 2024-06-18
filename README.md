@@ -1,1 +1,1 @@
-Rugby originated in England in the early 19th century, with the game's roots traced back to traditional ball games played in schools and villages.
+Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
