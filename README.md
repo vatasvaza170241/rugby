@@ -1,1 +1,1 @@
-Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
+Rugby originated in England in the early 19th century, with the game's roots traced back to traditional ball games played in schools and villages.
