@@ -1,1 +1,1 @@
-Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
+Muhammad Ali, widely regarded as one of the greatest boxers of all time, won an Olympic gold medal in 1960 and became a three-time world heavyweight champion.
