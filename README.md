@@ -1,1 +1,1 @@
-Muhammad Ali, widely regarded as one of the greatest boxers of all time, won an Olympic gold medal in 1960 and became a three-time world heavyweight champion.
+Boxing features weight classes to ensure fair competition and safety, with fighters grouped into divisions based on their weight and physical characteristics.
