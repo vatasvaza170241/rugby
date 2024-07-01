@@ -1,1 +1,1 @@
-Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
+Rugby union features two main variations: fifteens, played with 15 players per team, and sevens, played with seven players per team on a smaller field.
