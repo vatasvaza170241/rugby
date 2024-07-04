@@ -1,1 +1,1 @@
-Patrick Roy, known for his exceptional goaltending skills, holds the NHL record for the most career wins by a goaltender, with 551 wins over his career.
+Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
