@@ -1,1 +1,1 @@
-Rugby league is a separate code of rugby with its own distinct rules and competitions, including the Rugby League World Cup and domestic leagues in countries like Australia and England.
+Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
