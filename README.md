@@ -1,1 +1,1 @@
-Boxing gloves were introduced to protect fighters' hands and reduce the risk of injury, but they also serve to increase the duration of fights by absorbing impact and reducing knockouts.
+Wayne Gretzky, known as "The Great One," holds numerous NHL records, including most career goals (894) and most career points (2,857).
