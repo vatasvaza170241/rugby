@@ -1,1 +1,1 @@
-Muhammad Ali, widely regarded as one of the greatest boxers of all time, won an Olympic gold medal in 1960 and became a three-time world heavyweight champion.
+New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
