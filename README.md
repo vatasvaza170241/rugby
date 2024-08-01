@@ -1,1 +1,1 @@
-New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
+Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
